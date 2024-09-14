@@ -16,7 +16,7 @@ What I Do
 Let's Connect!
 🔗 LinkedIn
 🌐 Portfolio
-📧 Email: krishnathore777@example.com
+📧 Email: krishnathore777@gmail.com
 
 Looking Forward
 🌟 Open to exciting opportunities where I can contribute my skills and grow professionally.
